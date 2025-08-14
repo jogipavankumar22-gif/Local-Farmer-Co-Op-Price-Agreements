@@ -41,3 +41,8 @@ To create a decentralized, transparent, and fair agricultural marketplace that e
 
 
 ![alt text](image.png)
+
+
+**TEAM MEMBERS :**
+JOGI PAVAN KUMAR  -  jogipavankumar22@gmail.com
+KONDA JASWANTHI NAGA LALITHA -  jaswanthik3@gmail.com
